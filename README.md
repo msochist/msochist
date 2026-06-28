@@ -1,11 +1,12 @@
 𝘰𝘣𝘴𝘦𝘴𝘴𝘪𝘰𝘯s -> ​🇾​​🇴​​🇷​​🇺​, ​🇿​​🇺​, ​🇦​​🇹​​🇿​​🇺​, ​🇱​​🇪​​🇴​(​🇺​ ​🇬​​🇦​​🇾​ ​🇦​​🇸​​🇸​ ​🇮​​🇱​​🇾​ ) ⁺ ᵐⁱⁿ
 <div align="center">
 
-<img width="372" height="174" alt="image" src="https://github.com/user-attachments/assets/b0128a05-1ba7-48e5-9ceb-eeb257b8e286" />
+<img width="436" height="428" alt="image" src="https://github.com/user-attachments/assets/3be4dc96-8ea6-44a2-9ea1-67c2f6fec643" />
 
 
 
 
-            y̶o̶u̶'̶r̶e̶ ̶a̶ ̶f̶u̶c̶k̶i̶n̶g̶ ̶l̶o̶s̶e̶r̶   i love jabber 
+
+            S̶o̶m̶e̶ ̶k̶i̶n̶d̶ ̶o̶f̶ ̶r̶u̶l̶e̶r̶ ̶o̶n̶ ̶t̶o̶p̶ ̶o̶f̶ ̶a̶ ̶k̶i̶n̶g̶d̶o̶m̶ I̶'̶m̶ ̶j̶u̶s̶t̶ ̶a̶ ̶j̶e̶s̶t̶e̶r̶,̶ ̶I̶'̶l̶l̶ ̶n̶e̶v̶e̶r̶ ̶b̶e̶ ̶h̶i̶m̶...   i love jabber 
 
 
