@@ -1,6 +1,5 @@
 <div align="center">
-
-<img width="270" height="293" alt="image" src="https://github.com/user-attachments/assets/9f57ed06-8d8a-4b51-9c18-a4387b65a013" />
+<img width="374" height="211" alt="luka-till" src="https://github.com/user-attachments/assets/b116fcb1-6607-4860-966e-76625b57f381" />
 
 
 
